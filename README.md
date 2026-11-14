@@ -1,2 +1,2 @@
 # -bovdur
-Bovdur's personal space
+Personal space(край) oukraina.com/~username
